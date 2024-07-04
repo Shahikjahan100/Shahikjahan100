@@ -1,5 +1,5 @@
 - 👋 Hi, I’m SHAHYK_JAHAN (YOU MUST HAVE HEARD THE NAME).
-- 👀 I’m interested in CODING, WATCHING SEASONS(THAT ARE NOT REALLY DARK)
+- 👀 I’m interested in CODING
 - 🌱 I’m currently learning --> (WHY SHOULD I TELL U....NERD)
 - 💞️ SHE MUST BE FROM ANOTHER UNIVERSE...THAT'S WHY NEVER REACHED OUT TO ME...😔
 - 📫 How to reach me --> THROUGH MY HEART.....
